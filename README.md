@@ -1,37 +1,36 @@
-## Welcome to GitHub Pages
+## Duinocoin is shit!
 
-You can use the [editor on GitHub](https://github.com/stoplookingatminionmemesrevox/duinocoin.github.io/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Yes, you heard me right!
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+[Duinocoin](https://duinocoin.com/) is a piece of shit!
 
-### Markdown
+### Why?
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+The Website is false-advertising..
+Revcox has caused me and my family mental health issues as a side effect of ,,,CODE'''
+Fix your tkshinter GUI!
+Nothing will progress without this..
 
-```markdown
-Syntax highlighted code block
+### Please, revox..
 
-# Header 1
-## Header 2
-### Header 3
+Stop using Facebook to look at Minion Memes!
+This is unbelievably terrible...
 
-- Bulleted
-- List
+### 88
 
-1. Numbered
-2. List
+This is going on the news...
+I will have to 
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+REMOVE(!)
 
-### Jekyll Themes
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/stoplookingatminionmemesrevox/duinocoin.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+YOUR LICENSE!
 
-### Support or Contact
+I will fork duino-coin and-make-it-proprietary!
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+
+
+
+please wait for my next proposedChanges...
